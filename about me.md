@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Jeremy Abante Jr.
+- 👀 I’m interested in Music, Gaming and Programming.
+- 🌱 I’m currently learning BSIT specifically the language JAVA
+- 😄 Pronouns: He/him
